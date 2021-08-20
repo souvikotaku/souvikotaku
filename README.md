@@ -7,5 +7,5 @@
 - 💬 Ask me about ReactJs, javascript, html/css, antDesign OR......ANIME!!!! :heart: :heart: :heart: :heart:
 - 📫 How to reach me: souvikpunk@gmail.com OR you can contact wikileaks :stuck_out_tongue_closed_eyes:
 - 😄 Pronouns: mr,xhe,xhem,zack,bimbo,limbo,yaba daba doo haha
-- ⚡ Fun fact: i love seinen anime and i am currently learning japanese so that i can move o tokyo and become a yakuza under a good organization. :metal: :sunglasses:
+- ⚡ Fun fact: i love seinen anime and i am currently learning japanese so that i can move to tokyo and become a yakuza under a brutal organization. :metal: :sunglasses:
 
