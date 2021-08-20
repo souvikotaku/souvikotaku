@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on something cool, crazy and chaotic hahahhahaha hahaha !!!! :fire: :fire: :fire:
 - 🌱 I’m currently learning React Native, Ionic and some other top secret stuff that is very dangerous for you to know lol :smiling_imp:
-- 👯 I’m looking to collaborate on some cool extradimentional and extraterrestrial projects
+- 👯 I’m looking to collaborate on some cool extradimentional and extraterrestrial projects :alien:
 - 🤔 I’m looking for help with mobile app development expecially with native tech like kotlin/java
 - 💬 Ask me about ReactJs, javascript, html/css, antDesign OR......ANIME!!!! :heart: :heart: :heart: :heart:
 - 📫 How to reach me: souvikpunk@gmail.com OR you can contact wikileaks :stuck_out_tongue_closed_eyes:
