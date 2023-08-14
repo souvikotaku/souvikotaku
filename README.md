@@ -5,5 +5,4 @@
 - 👯 I’m looking to collaborate on some cool extradimentional and extraterrestrial projects :alien:
 - 💬 Ask me about ReactJs, javascript, scss OR......ANIME!!!! :heart: :heart: :heart: :heart:
 - 📫 How to reach me: souvikpunk@gmail.com OR you can contact wikileaks :stuck_out_tongue_closed_eyes:
-- 😄 Pronouns: mr,xhe,xhem,zack,bimbo,limbo,yaba daba doo haha
 - ⚡ Fun fact: i love seinen anime and i am currently learning japanese so that i can move to tokyo and become a yakuza under a brutal organization. :metal: :sunglasses:
